@@ -1,6 +1,7 @@
 # Fukken-Feelings-Podcast
 
 Are you tired of feeling like you're the only one struggling with your emotions? Do you want to hear from real people who are dealing with the same issues as you? Then tune in to These Fukken Feelings Podcast©!
+https://www.fukkenfeelings.com/
 
  
 
